@@ -1,1 +1,0 @@
-# sotetsu2
